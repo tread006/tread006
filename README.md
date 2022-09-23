@@ -10,3 +10,4 @@
 - 😄 Pronouns: ... she/her/hers.
 - ⚡ Fun fact: ... I am so old that I know how to use a fax machine.
 
+/play crickets
